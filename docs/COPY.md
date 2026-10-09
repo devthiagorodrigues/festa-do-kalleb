@@ -44,7 +44,7 @@ Microcopy: **Role para embarcar ↓**
 
 # 24 de outubro
 
-## 16h30
+## 14h00
 
 **Preparamos uma tarde para brincar, aproveitar, celebrar e criar boas lembranças juntos.**
 
